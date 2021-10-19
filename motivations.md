@@ -1,0 +1,1 @@
+I want more than anything else, to become the best version of myself.  While I'm alive, I must strive to manifest my potential.  If I'm going to be, I might as well fully experience the best version of my own being.
